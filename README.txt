@@ -1,1 +1,0 @@
-Esse desafio eu tive que fazer correndo e enviar logo para poder mostrar ao meu superior, logo, não fiz ele da melhor forma seguindo todos os parametros certinhos e tbm não consegui fazer algumas coisas. Nos próximos vou fazer da melhor forma possivel! :)
